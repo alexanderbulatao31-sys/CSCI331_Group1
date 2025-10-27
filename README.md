@@ -1,1 +1,2 @@
-Youtube link Hw Chapter 6: https://youtu.be/0GOJl9-qd9M
+Project 1 Link: https://youtu.be/LKrREzFEKQY
+NACE Competencies video Link: https://youtu.be/aBSv8nZctms
