@@ -1,5 +1,3 @@
 Group Members: Nadia, Alexander
 
-Project 1 Link: https://youtu.be/LKrREzFEKQY
-
-NACE Competencies video Link: https://youtu.be/aBSv8nZctms
+Research Homework Youtube Video: https://youtu.be/FfN9U4G0jJk
